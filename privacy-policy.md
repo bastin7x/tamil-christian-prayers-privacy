@@ -136,7 +136,7 @@ If you have any questions or concerns about this Privacy Policy or the app's pri
 **Email:** [virginmary7@gmail.com]  
 **Subject Line:** Tamil Christian Prayers - Privacy Inquiry
 
-We will respond to your inquiry within 48 hours.
+We will try respond to your inquiry within 48 hours.
 
 ## Summary
 
